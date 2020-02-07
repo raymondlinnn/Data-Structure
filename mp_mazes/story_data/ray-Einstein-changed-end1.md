@@ -1,0 +1,1 @@
+He successfully hided his identity, and called himself "Eginhard". He became a commander in the army, made remarkable commitment to the army. But still, the German army was defeated in the World War 2. 

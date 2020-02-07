@@ -1,3 +1,4 @@
-# Data-Structure
-UIUC Data Structure fall 2019
-By Raymond Lin
+# Data_structure
+Assignments for UIUC data structure course
+
+Please don't copy my code.
